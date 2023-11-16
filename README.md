@@ -1,0 +1,1 @@
+# registr_avtor
